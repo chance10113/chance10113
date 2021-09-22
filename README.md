@@ -6,5 +6,6 @@ Hello, I'm Chance. I'm a software engineer seeking to make the world a better pl
 Reach me at:
 - EmailL: chanceswartz@gmail.com
 - LinkedIn: https://www.linkedin.com/in/chance-swartz/
+- Credly: https://www.credly.com/badges/9c479313-9de1-4739-9602-464b45133b66/public_url
 - 😄 Pronouns:  He / Him
 - ⚡ Fun fact: I have three middle names!
